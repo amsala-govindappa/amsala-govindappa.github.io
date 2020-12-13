@@ -1,1 +1,0 @@
-# amsala-govindappa.github.io
